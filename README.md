@@ -24,8 +24,8 @@ I am an enthusiastic Computer Science student from DDU, Class of 2024, with a st
 - 📊 **Data Analytics Dashboards:** Developed interactive dashboards using Power BI and Tableau for insightful decision-making.
 
 ## 🤝 Let’s Connect!
-- 💼 [https://www.linkedin.com/in/krupali-pipaliya-7a1304205?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](#)
-- 📧 [pkrupali018@gmail.com](#)
+- 💼 [LinkedIN](https://www.linkedin.com/in/krupali-pipaliya-7a1304205?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 📧 [Email](pkrupali018@gmail.com)
 - 😄 Pronouns: She/Her
 
 ## ⚡ Fun Fact
